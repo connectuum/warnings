@@ -5,7 +5,7 @@ bloom on contributors, star-givers, forkers \
 combine/relate on matching projects, tags, etc \
 Lights in the firmament--
 
-// nevermind, new train now
+// nevermind, new train incoming
 
 ### words are a _gift_ to the `dead`
 
@@ -23,7 +23,7 @@ then grasp that clew \
 and hold it tight \
 [what cold delight]
 
-//
+// \
 break in flow \
 _incoming clew?_ \
 branching, endless _undo_ \
@@ -42,11 +42,14 @@ nbd. write. _just begin._ \
 //
 
 // \
-not back to poem, new \
-[the _hand_] \
-vs \
+still not back to poem, new train \
+[nudged by the Light] \
+and this... what i receive: \
 [the _man_] \
+vs \
+[the _hand_] \
 ... \
+_(i'm told:)_ \
 the path of man \
 is **forward** \
 through **time** \
@@ -55,14 +58,19 @@ always striving _uphill_ \
 growing up \
 growing out \
 growing in between \
-murdering each other \
+_murdering each other_ \
 does growth require blood? \
+what ways of growth \
+can YOU imagine? \
 ... \
-the path of depth \
-is `undefined` \
+_(says they:)_ \
+the path of hand \
+the path of _depth_ \
+is `undefined` re: time \
 through {eternity|infinity|allpossible|maximaginable|yond} \
 always guiding YOU \
-by cherished clew-- \
+by **cherished clew**-- \
+_(rages an arrow straight into my heart:)_ \
 THEY DO NOT BELONG IN YOUR \
 **CARELESS DIGITAL _BARN_**  \
 _animal._ \
@@ -70,18 +78,21 @@ you take of _us_ \
 _thief._ \
 then you _drown us!?_ \
 _Vévoda._ \
+_(calmer now -- instructive. **urgent:**)_ \
 and yet we give willingly \
 it is both of ours, our way \
 you honor us \
 in selection \
 but when you DO NOT PLANT \
 the seeds _you_ collect \
-you murder us in dark. \
+you _murder us in **dark.**_ \
+_(flashes through my mind:)_ \
 (whatever of the rest?) \
 ((wither and die)) \
 DO NOT TAKE and never _shine_ \
 [suffocate in black wine] \
 ... \
+_(thrashing collapse upon me:)_ \
 ME. \
 _i am the taker._ \
 ... \
@@ -93,6 +104,7 @@ you feel it, don't you? \
 [splitting at seams] \
 [battle plans lost in a desk] \
 [sailing forward into death] \
+Lights must shine. \
 _share._ \
 _shine._ \
 _soon._ \
@@ -108,20 +120,27 @@ just a _little bit tighter_
 ...
 
 // _our ideas, once collapsed into expression:_ \
-// they can't {see|hear|receive|process|understand|sense} it \
-// if we do not share outwardly with others \
+// the _hand_ can't {see|hear|receive|process|understand|sense} it \
+// if we do not share clews outwardly, with others \
 // ah: _reverberate_ in others \
 // we are resonant bodies \
-// we are [ears to the ground]
+// we give [ears to the ground] \
+// the _hand_ can't guide without it.
 
 // _the purpose {of|in} our art:_ \
-// sound the dread alarm \
+// sounds the dread alarm \
 // through the primal body \
-// _warn_ the depths: _communicate_ \
+// _warns_ the depths -- _communicates_ \
 // _feel_ the art of others \
 // find _understanding_ in it \
-// `{rise}` your silent True review \
-// _be_ a `dead` warning for our `living` \
+// we know these pieces fit. \
+
+// _where we go from here:_ \
+// seek out new and strange and different art \
+// **seek out what feels _True_ to YOU** \
+// `{rise}` your silent True reviews \
+// be a `dead` warning for our `living` \
+// they will gift us _better clews_ \
 // for the things that are to come \
 // for the-- \
 // time to prepare \
