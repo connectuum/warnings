@@ -10,3 +10,4 @@ and i learn via `diff`
 * `2003.02.04` [crazy-train](2003.02.04.crazy-train.md)
 * `2003.02.XX` [venom](2003.02.XX.venom.md)
 * `2003.02.08` [time travel](2003.02.08.time-travel.md)
+* `2003.02.10` [duncan](2003.02.10.duncan.md)
