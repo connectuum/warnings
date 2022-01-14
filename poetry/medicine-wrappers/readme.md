@@ -15,7 +15,7 @@
 6: [wait](06.wait.md) \
 7: [someday](07.someday.md) \
 8: [emergence](08.emergence.md) \
-9: [constant-fire](09.constant-fire.md) \
+9: [constant fire](09.constant-fire.md) \
 10: [sinking](10.sinking.md) \
 11: [pillars](11.pillars.md) \
 12: [morning comes](12.morning-comes.md) \
@@ -57,6 +57,6 @@
         <td><img src="14.quads.jpg" /></td>
         <td><img src="15.last-page.jpg" /></td>
         <td><img src="16.one-room-farewell.jpg" /></td>
-        <td><img src="" /></td>
+        <td> </td>
     </tr>
 </table>
