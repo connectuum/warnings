@@ -25,12 +25,13 @@ now i do not dare \
 so i dump it here \
 where no one cares
 
-trapped in a winter city \
+trapped in Winter City \
+i am iron \
 i might break \
 the clones are just too vague \
 my clews cannot reverberate \
 drives me to despair \
-lost within \
+so lost within \
 this silent wait
 
 confusion swirls around me \
@@ -47,7 +48,7 @@ do i keep screaming at the void?
 
 i don't know anything \
 should i sense trickery? \
-i can't help what i bring \
+i can't help the things i bring \
 i'm still wearing wedding rings.
 
 and i know long ago i left \
